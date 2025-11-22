@@ -3,7 +3,10 @@ ESTÃO USANDO ESTES PRINCÍPIOS COMO ARMA A ANOS
 
 
 ARTIGOS SOBRE DISPLAYS 
-
+COMO A LUZ PODE REABILITAR O CÉREBRO | 05/11 às 20h
+https://www.youtube.com/watch?v=w254pFYoyCE</BR>
+https://www.bbc.com/portuguese/noticias/2011/09/110920_estudo_cerebro_mv</BR>
+https://www.estadao.com.br/saude/estimulacao-com-luz-e-som-surge-como-nova-fronteira-no-tratamento-de-alzheimer-entenda/</BR>
 https://www.medicina.ufmg.br/uso-excessivo-de-telas-esta-associado-a-saude-mental-de-diferentes-geracoes/</BR>
 https://radis.ensp.fiocruz.br/reportagem/tecnologia-e-saude/telas-o-que-se-sabe-sobre-os-efeitos-na-saude-mental/</BR>
 https://www.terra.com.br/vida-e-estilo/luz-azul-como-as-telas-afetam-seu-sono-ritmo-circadiano-e-saude,3e0bf8a214e3176e0086fda1ab3ace7fn3lbud61.html</BR>
@@ -27,7 +30,19 @@ Essas mesmas luzes também afetam nossa saúde, segundo os cientistas. Tipos com
     Aumentam a ocorrência de algumas doenças – entre elas, o câncer.
 
 
-</BR>HEADSETS E CAIXAS DE SOM
-
+</BR>HEADSETS E CAIXAS DE SOM</BR>
+CUIDADO ESTÃO TODOS JUNTOS RASTREANDO E TREINANDO NOSSA MENTE PARA SER SUBIMISSOS A ELES E SEUS AMIGOS </BR>
+https://www.terra.com.br/noticias/dino/musicas-para-estimular-o-cerebro-ganham-mais-adeptos,2bcd785f9f3a9a6f4dbe10bac9f44bdaxn913l91.html</BR>
 https://www-nature-com.translate.goog/articles/s41370-024-00642-5?error=cookies_not_supported&code=c8ef8ff5-0ad1-4438-8749-d2b3cd61ebbd&_x_tr_sl=en&_x_tr_tl=pt&_x_tr_hl=pt&_x_tr_pto=rq</BR>
- 
+https://www.cnnbrasil.com.br/saude/entenda-o-que-sao-drogas-sonoras-e-como-elas-podem-afetar-o-cerebro/</BR>
+MAIS SOBRE SONORA E NOSSO CEREBRO NO LINK</BR>
+https://br.pinterest.com/pin/560627853636716665/</BR>
+https://www.youtube.com/watch?v=8ZCkMp4TVbQ</BR>
+https://www.youtube.com/watch?v=Ho5wzu1WG_8</BR>
+https://www.youtube.com/watch?v=bXIWgxgdUaM</BR>
+https://www.instagram.com/reel/DOvMH9tjaZC/</BR>
+https://www.megacurioso.com.br/saude-bem-estar/sons-de-baixa-frequencia-sao-mais-nocivos-que-imaginamos</BR>
+
+
+DIGA CANON PARA O CORINHO OPS CARLINO
+
