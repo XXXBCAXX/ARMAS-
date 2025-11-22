@@ -4,6 +4,7 @@ ESTÃO USANDO ESTES PRINCÍPIOS COMO ARMA A ANOS
 
 ARTIGOS SOBRE DISPLAYS 
 
+https://www.medicina.ufmg.br/uso-excessivo-de-telas-esta-associado-a-saude-mental-de-diferentes-geracoes/
 https://radis.ensp.fiocruz.br/reportagem/tecnologia-e-saude/telas-o-que-se-sabe-sobre-os-efeitos-na-saude-mental/
 
 HEADSETS E CAIXAS DE SOM
