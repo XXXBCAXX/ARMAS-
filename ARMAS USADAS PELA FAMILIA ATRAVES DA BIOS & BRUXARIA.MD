@@ -43,6 +43,16 @@ https://www.youtube.com/watch?v=bXIWgxgdUaM</BR>
 https://www.instagram.com/reel/DOvMH9tjaZC/</BR>
 https://www.megacurioso.com.br/saude-bem-estar/sons-de-baixa-frequencia-sao-mais-nocivos-que-imaginamos</BR>
 
+A GRANDE RAZÃO DE EU REUNIR E PUBLICAR ESTES ARTIGOS ABAIXO 
+https://ok.ru/video/10244101049067
+https://ok.ru/video/10214060657387
+https://ok.ru/video/10067235769067
+https://ok.ru/video/10052882664171
+https://vimeo.com/jbca410801
+https://vimeo.com/1133615303?share=copy&fl=sv&fe=ci
+https://vimeo.com/1133613213?share=copy&fl=sv&fe=cihttps%3A%2F%2Fvimeo.com%2F1133610219%3Fshare%3Dcopy&fl=sv&fe=ci
+https://vimeo.com/user250735752
+
 
 DIGA CANON PARA O CORINHO OPS CARLINO
 
